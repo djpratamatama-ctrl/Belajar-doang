@@ -1,0 +1,2 @@
+# Belajar-doang
+Test kecerdasan
